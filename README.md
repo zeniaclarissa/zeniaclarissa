@@ -5,7 +5,7 @@
 
 👩‍💻 This is my first time learning Python language! 
 
-⚡ Fun fact: When I'm not working/studying, you'll find me at pilates or yoga 🧘‍♀️ classes, exploring cafes, or spending time with dogs back home 🦮 (Zeus & Chicco)—my favorite companions!
+⚡ Fun fact: When I'm not working/studying, you'll find me at pilates or yoga 🧘‍♀️ classes, exploring cafes & dog parks, or spending time with my two dogs back home 🦮 (Zeus & Chicco)—my favorite companions!
 
 📫 How to reach me: email: zeniaclarissa@gmail.com / zc2709@columbia.edu
 
