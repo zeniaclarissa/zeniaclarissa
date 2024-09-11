@@ -7,7 +7,7 @@
 
 👩‍💻 This is my first time learning Python language! 
 
-⚡ Fun fact: When I'm not working/studying, you'll find me at pilates or yoga 🧘‍♀️ classes or exploring cafes ☕ & dog parks.
+⚡ Fun fact: When I'm not working/studying, you'll find me at pilates or yoga 🧘‍♀️ classes or exploring cafes ☕ & dog parks
 
 🦮 Got two pups holding it down back home in Indonesia — Zeus (the fluffiest Samoyed) and Chicco (the cutest Maltese). They’re my best companions!
 
